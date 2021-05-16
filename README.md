@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Maya! 
+- 👀 I’m interested in programming. (and making money)
+- 🌱 I study at NSU. 
+- 📫 How to reach me:
+        - vk : @rmaya
+        - inst: @kleines_deutsches_girl
