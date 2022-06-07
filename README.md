@@ -1,6 +1,7 @@
 - 👋 Hi, I’m Maya! 
 - 👀 I’m interested in programming. (and making money)
-- 🌱 I study at NSU. 
+- 🌱 I graduated from NSU (Novosibirsk State University). 
+- 🖥 I work in Intabia Company. 
 - 📫 How to reach me:
         - vk : @rmaya
         - inst: @kleines_deutsches_girl
